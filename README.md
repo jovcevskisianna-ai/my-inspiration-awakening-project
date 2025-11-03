@@ -22,4 +22,4 @@ My musical composition could've incorporated some cultural aspects, expanded tra
 
 Acknowledgements:
 
-I would like to acknowledgevthe tunepad tutorials, my tutor and my peer reviewers for their feedback. 
+I would like to acknowledge the Tunepad tutorials, my tutor and my peer reviewers for their feedback. 
